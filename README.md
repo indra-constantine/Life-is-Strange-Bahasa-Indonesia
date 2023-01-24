@@ -14,3 +14,6 @@ Sedikit tips dari saya, game kaya gini lebih cocok menggunakan, kata "Aku & Kau"
 Jangan kaya BOT kata, "I'm jadi Saya" /atau "You jadi Anda"
 
 Kecuali emang ada situasi/scene tertentu boleh saja seperti itu.
+Jika kalian juga penerjemah game bahasa indonesia, pasti sudah tidak asing dengan tips yg saya berikan.
+
+So... selamat menerjemahkan!
